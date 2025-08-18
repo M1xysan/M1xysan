@@ -1,7 +1,7 @@
 # *Welcome to the Dunes Mixy's introduction*
 ▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔
 
-DNI:Para-Z#o,ped#+, TransIDs,trolls, Demanding/forcing+
+DNI:Para-Z#o,ped#+, TransIDs[Harmful],trolls, Demanding/forcing+
 
 🌙 Welcome, Traveler
 I'm **Zerune**/**DunesMixy**, a shapeshifter, artist, and stardust storyteller.
