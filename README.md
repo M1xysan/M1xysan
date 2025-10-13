@@ -4,7 +4,7 @@
 DNI:Para-Z#o,ped#+, TransIDs[Harmful],trolls, Demanding/forcing+
 
 🌙 Welcome, Traveler
-I'm **Zerune**/**DunesMixy**, a shapeshifter, artist, and stardust storyteller.
+I'm **Zerune**/**Dunes Mixy** + !! , a shapeshifter, artist, and stardust storyteller.
 
 # 🔮 About Me
 - 🎨 Fine arts + digital creator
