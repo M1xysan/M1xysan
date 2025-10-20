@@ -1,7 +1,8 @@
 # *Welcome to the Dunes Mixy's introduction*
 ▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔
 
-DNI:Para-Z#o,ped#+, TransIDs[Harmful],trolls, Demanding/forcing+
+DNI:Para-Z#o,ped#+, TransIDs[Harmful],troll# *Welcome to the Dunes Mixy's introduction*
+▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔
 
 🌙 Welcome, Traveler
 I'm **Dunes Mixy** 
@@ -10,6 +11,7 @@ I'm **Dunes Mixy**
 - 🎨 Fine arts + digital creator
 - 🌌 ShapeShifterkin / Otherhearted / Kinfolk
 - ı love roleplaying unconditionally
+- I also make edits (gacha/pony town+)
 
 # 🏨 Owner of a creative inner space where stories and ideas come together
 
