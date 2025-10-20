@@ -4,13 +4,18 @@
 DNI:Para-Z#o,ped#+, TransIDs[Harmful],trolls, Demanding/forcing+
 
 🌙 Welcome, Traveler
-I'm **Zerune**/**Dunes Mixy** + !! , a shapeshifter, artist, and stardust storyteller.
+I'm **Dunes Mixy** 
 
 # 🔮 About Me
 - 🎨 Fine arts + digital creator
 - 🌌 ShapeShifterkin / Otherhearted / Kinfolk
-- 📚 My powers lie in: storybuilding, design, healing themes
 - ı love roleplaying unconditionally
+
+# 🏨 Owner of a creative inner space where stories and ideas come together
+
+-
+# 📎 Links:
+[DunesMixy's Social links](https://linktr.ee/MixySan)
 
 # 🌿 Current Projects: "All of my projects are dual TW's and Concept/Content"
 - `Mha Post-war Au /Slice-of-life/Drama/`
@@ -18,13 +23,3 @@ I'm **Zerune**/**Dunes Mixy** + !! , a shapeshifter, artist, and stardust storyt
 - `DB: H Post-war Au /Slice-of-life/Drama/`
 - `Roblox Royale High: After the Dawn Au? /Slice-of-life/Drama/`
 - `I also make edits regardless of concept [pony town/gacha+]`
--
-# 📎 Links:
-[DunesMixy's Social links](https://linktr.ee/MixySan)
-
-# Extra
-otherhearted
-fictionhearted/bond
-otherkin: ElderShapeshifter Divine/god mix
-copinglink
-phantom shifter
