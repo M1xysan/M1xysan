@@ -1,7 +1,7 @@
 # *Welcome to the Dunes Mixy's introduction*
 ▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔
 
-DNI:Para-Z#o,ped#+, TransIDs[Harmful],troll# *Welcome to the Dunes Mixy's introduction*
+DNI:Z#o,ped#+, TransIDs[Harmful],troll# *Welcome to the Dunes Mixy's introduction*
 ▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔
 
 🌙 Welcome, Traveler
