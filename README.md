@@ -32,6 +32,7 @@ I'm **Dunes Mixy**
 
 <p align="center">
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/tumblr_393c415675ecd0f2aaaabf5ea5a8fa71_10c02d67_100.gif" height="50">
+</p>
 
   
 <p align="center">
