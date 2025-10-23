@@ -29,4 +29,6 @@ I'm **Dunes Mixy**
 - `Roblox Royale High: After the Dawn Au? /Slice-of-life/Drama/`
 - `I also make edits regardless of concept [pony town/gacha+]`
 
-<img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/Blinkie_116__site_.gif" height="40">
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/Blinkie_116__site_.gif" height="40">
+</p>
