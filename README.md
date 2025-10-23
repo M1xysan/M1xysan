@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/tumblr_de922a057fc1f7bac4d8b1e04a28f635_b7f63538_75.gif" height="50">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/tumblr_de922a057fc1f7bac4d8b1e04a28f635_b7f63538_75.gif" height="50">
 </p>
 # *Welcome to the Dunes Mixy's introduction*
 ▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔▔
