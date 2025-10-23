@@ -34,5 +34,5 @@ I'm **Dunes Mixy**
 </p>
 
 <p align="center">
-  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/1518638dgwstvi1e3.gif="50">
+  <img src="https://raw.githubusercontent.com/M1xysan/REPO/main/path/M1xysan.gif="50">
 </p>
