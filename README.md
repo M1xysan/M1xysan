@@ -32,3 +32,7 @@ I'm **Dunes Mixy**
 <p align="center">
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/Blinkie_116__site_.gif" height="50">
 </p>
+
+<p align="center">
+  <img src="https://raw.githubusercontent.com/USERNAME/REPOSITORY/main/FILENAME="50">
+</p>
