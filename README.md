@@ -18,6 +18,10 @@ Dunes Mixy's introduction*
 I'm **Dunes Mixy** 
 
 # 🔮 About Me
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/tumblr_a1e1497a98ca517b88730c8974b57b34_a75071fb_250.gif" height="50">
+</p>
+
 <p><img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/7fxxhw.gif" height="50"></p>
 - 🎨 Fine arts + digital creator
 - 🌌 ShapeShifterkin / Otherhearted / Kinfolk
