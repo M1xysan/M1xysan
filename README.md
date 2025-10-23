@@ -30,5 +30,5 @@ I'm **Dunes Mixy**
 - `I also make edits regardless of concept [pony town/gacha+]`
 
 <p align="center">
-  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/Blinkie_116__site_.gif" height="60">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/Blinkie_116__site_.gif" height="80">
 </p>
