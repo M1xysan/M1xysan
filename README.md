@@ -49,3 +49,7 @@ I'm **Dunes Mixy**
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/Blinkie_116__site_.gif" height="50">
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/1518638dgwstvi1e3.gif" height="50">
 </p>
+
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/tumblr_33fb462449496b12ba909db517095bc8_2eb33e5c_250.jpg" height="50">
+</p>
