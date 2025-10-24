@@ -1,25 +1,25 @@
-<p align="center">
+<p>
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/tumblr_de922a057fc1f7bac4d8b1e04a28f635_b7f63538_75.gif" height="50">
 </p>
 # Welcome to the Dunes Mixy's introduction
-<p align="center">
+<p>
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/tumblr_a1e1497a98ca517b88730c8974b57b34_a75071fb_250.gif" height="50">
 </p>
 
 DNI:para Z#o,ped#+,
 TransIDs[Harmful],troll
 
-<p align="center">
+<p>
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/tumblr_a1e1497a98ca517b88730c8974b57b34_a75071fb_250.gif" height="50">
 </p>
 
 🌙 Welcome, Traveler
 I'm **Dunes Mixy** 
-<p align="center">
+<p>
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/tumblr_a1e1497a98ca517b88730c8974b57b34_a75071fb_250.gif" height="50">
 </p>
 🔮 About Me
-<p align="center">
+<p>
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/tumblr_a1e1497a98ca517b88730c8974b57b34_a75071fb_250.gif" height="50">
 </p>
 
@@ -42,15 +42,15 @@ I'm **Dunes Mixy**
 - `Roblox Royale High: After the Dawn Au? /Slice-of-life/Drama/`
 - `I also make edits regardless of concept [pony town/gacha+]`
 
-<p align="center">
+<p>
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/tumblr_393c415675ecd0f2aaaabf5ea5a8fa71_10c02d67_100.gif" height="50">
 </p>
   
-<p align="center">
+<p>
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/Blinkie_116__site_.gif" height="50">
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/1518638dgwstvi1e3.gif" height="50">
 </p>
 
-<p align="center">
+<p>
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/tumblr_33fb462449496b12ba909db517095bc8_2eb33e5c_250.jpg" height="50">
 </p>
