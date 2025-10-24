@@ -15,7 +15,9 @@ TransIDs[Harmful],troll
 
 🌙 Welcome, Traveler
 I'm **Dunes Mixy** 
-
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/tumblr_a1e1497a98ca517b88730c8974b57b34_a75071fb_250.gif" height="50">
+</p>
 🔮 About Me
 <p align="center">
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/tumblr_a1e1497a98ca517b88730c8974b57b34_a75071fb_250.gif" height="50">
