@@ -1,6 +1,6 @@
 hello!! ^^ ı'm ***Dunes Mixy/Zerune Korvine (zee)*** 
 
-ı'm mostly curious about learning new thing!
+ı'm mostly curious about learning new things!
 
 ı'm 18 years old (going to be 19 in december!)
 
