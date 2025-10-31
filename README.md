@@ -9,3 +9,5 @@ MOSTLY IWCUCF
 ı have a lots of AU's and OCs 
 
 DNI: Zoo/Pedos/parahpilias, Harmful TransİDs, ı dont like being forced or anything against my will| permanent block/hide
+
+Trusted/Amazing people!: @lxckystxrs 
