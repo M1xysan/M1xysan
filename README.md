@@ -15,8 +15,7 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 - 💭 Pronouns: they / she / he (change sometimes — go with what feels right 💜)  
 - 🧠 Neurodivergent: ADHD + Dyslexic + Creative chaos in one brain  
 - 🎨 Art style: surrealist + illustrative + emotional  
-- 🪩 Current obsession: MHA AUs, shapeshifter lore, and galactic aesthetics  
-- 🕊️ Motto: “Everything all above.”  
+- 🪩 Current obsession: MHA AUs, Lore desing + and roleplaying!
 
 ---
 
