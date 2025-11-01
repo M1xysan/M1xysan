@@ -57,7 +57,7 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 ---
 
 ### 📎 Links
-(#) · [LinkTree]
+(#) · [LinkTree](https://linktr.ee/MixySan)
 
 ---
 
