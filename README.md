@@ -10,4 +10,4 @@ MOSTLY IWCUCF
 
 DNI: Zoo/Pedos/parahpilias, Harmful TransİDs, ı dont like being forced or anything against my will| permanent block/hide
 
-Trusted/Amazing people!: @lxckystxrs (ash) @iidaten (tenya)  @givetomurasomechapstick
+Trusted/Amazing people!: @lxckystxrs (Ash) @iidaten (Tenya)  @givetomurasomechapstick (Moon)
