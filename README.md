@@ -1,14 +1,18 @@
 <h2 align="center">🌙✨ Welcome to My Space ✨🌙</h2>
 <p align="center"><b>💜 Dunes Mixy / Zerune Korvine (Zee) 💜</b></p>
 
----
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/tumblr_inline_n37t4aBLC21qhwjx8540.gif" width="500" alt="Tumblr blinkie">
+</p>
 
 ### 🪞 About Me
 Heya!! ^^ I'm ***Dunes Mixy*** — or ***Zerune Korvine*** if you’ve met my galactic side 💫  
 I’m 18 years old (turning 19 in December!) and a creative soul who loves world-building, design, and expressing identity through every art form possible.  
 Mostly curious about *learning new things, building AUs, and creating stories that feel alive.*  
 
----
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/rkyal7.jpeg" width="500" alt="banner">
+</p>
 
 ### 🐾 Quick Facts
 - 🌈 Genderfluid / fluid identity (I shift, I flow, I exist beyond labels)  
