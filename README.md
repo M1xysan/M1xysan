@@ -62,3 +62,7 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 ---
 
 <p align="center"><i>“Made of stars, stories, and a little bit of chaos.”</i> 🌠</p>
+
+<p>
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/tini_gameboy_advance_by_king_lulu_deer-db4uv6o.gif" width="50" alt="Tiny Gameboy blinkie">
+</p>
