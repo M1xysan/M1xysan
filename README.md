@@ -21,7 +21,9 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 - 🎨 Art style: surrealist + illustrative + emotional  
 - 🪩 Current obsession: MHA AUs, Lore desing + and roleplaying!
 
----
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/rkyal7.jpeg" width="500" alt="banner">
+</p>
 
 ### 🌸 Interests
 ✨ World & character design  
@@ -30,40 +32,54 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 🎭 Drag queens, LGBTQ+ culture, self-expression, and aesthetics  
 🎵 Music inspires every world I make  
 
----
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/rkyal7.jpeg" width="500" alt="banner">
+</p>
 
 ### 💫 Aesthetic Vibes
 > 🌌 Galactic surrealism  
 > 💜 Purple core energy
----
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/rkyal7.jpeg" width="500" alt="banner">
+</p>
 > shapeshifting
 > Shifterkin / Otherhearted/kin / Fictionkin/hearted / Ockin / kinfluid / Kinfolk 
 
----
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/rkyal7.jpeg" width="500" alt="banner">
+</p>
 
 ### 🖤 DNI
 ❌ Zoo / Pedos / Paraphilias  
 ❌ Harmful TransIDs / Disrespect / Forcing people into things  
 > I protect my peace — crossing boundaries = permanent block/hide.  
 
----
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/rkyal7.jpeg" width="500" alt="banner">
+</p>
 
 ### 🪷 Trusted & Amazing People
 @lxckystxrs (Ash) | @iidaten (Tenya) | @givetomurasomechapstick (Moon)  
 💜 thank you for being part of my safe space 💜  
 
----
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/rkyal7.jpeg" width="500" alt="banner">
+</p>
 
 ### 💎 Favorite Colors
 💜 Purple — and whatever fits with purple.  
 ✨ If it glows, it goes.  
 
----
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/rkyal7.jpeg" width="500" alt="banner">
+</p>
 
 ### 📎 Links
 (#) · [LinkTree](https://linktr.ee/MixySan)
 
----
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/rkyal7.jpeg" width="500" alt="banner">
+</p>
 
 <p align="center"><i>“Made of stars, stories, and a little bit of chaos.”</i> 🌠</p>
 
