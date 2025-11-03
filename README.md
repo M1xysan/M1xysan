@@ -92,7 +92,7 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 </p>
 
 ### 📎 Links
-
+[LinkTree](https://linktr.ee/MixySan)
 
 <p align="center">
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/rkyal7.jpeg" width="600" alt="Banner">
