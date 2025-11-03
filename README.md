@@ -1,6 +1,8 @@
 <h2 align="center">🌙✨ Welcome to My Space ✨🌙</h2>
 <p align="center"><b>💜 Dunes Mixy / Zerune Korvine (Zee) 💜</b></p>
-
+<p align="center">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/tumblr_inline_n37t4aBLC21qhwjx8540.gif" alt="divider" width="300">
+</p>
 <p align="center">
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/rkyal7.jpeg" width="600" alt="Banner">
 </p>
