@@ -15,7 +15,14 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 </p>
 
 ### 🐾 Quick Facts
-- 🌈 Genderfluid / fluid identity (I shift, I flow, I exist beyond labels)  
+- <p>
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/cgncsl.gif" width="20">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/gptndq.gif" width="20">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/igbjg6.gif" width="20">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/ke2xab.gif" width="20">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/tynx5q.gif" width="20">
+  <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/y4chqg.gif" width="20">
+</p>  
 - 💭 Pronouns: they / she / he (change sometimes — go with what feels right 💜)  
 - 🧠 Neurodivergent: ADHD + Dyslexic + Creative chaos in one brain  
 - 🎨 Art style: surrealist + illustrative + emotional  
