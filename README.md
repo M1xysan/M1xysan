@@ -59,8 +59,7 @@ Mostly curious about *learning new things, building AUs, and creating stories th
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/rkyal7.jpeg" width="600" alt="Banner">
 </p>
 
-> 🐾 Shifterkin / Otherhearted soul  
-> 🎭 Drag-queen sparkle meets quiet comfort  
+> 🐾 Shifterkin / Otherhearted-kin / FictionHearted-kin / Copinglink 
 
 <p align="center">
   <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/rkyal7.jpeg" width="600" alt="Banner">
