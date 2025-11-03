@@ -15,7 +15,20 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 </p>
 
 ### 🐾 Quick Facts
-<img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/cgncsl.gif" width="20"> <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/gptndq.gif" width="20"> <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/igbjg6.gif" width="20"><img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/33uuk0k.gif" width="20"> <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/8x81k3.gif" width="20"> <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/ke2xab.gif" width="20"> <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/tynx5q.gif" width="20"> <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/flug4b.gif" width="20"> <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/y4chqg.gif" width="20"> <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/ok3no6.gif" width="20"> <img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/5vedav.gif?raw=true" width="20">
+<span>
+<img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/cgncsl.gif" width="20">
+<img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/gptndq.gif" width="20">
+<img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/igbjg6.gif" width="20">
+<img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/33uu0k.gif" width="20"> <!-- Polyamorous Heart -->
+<img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/8x81k3.gif" width="20">
+<img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/ke2xab.gif" width="20">
+<img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/tynx5q.gif" width="20">
+<img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/flug4b.gif" width="20">
+<img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/y4chqg.gif" width="20">
+<img src="https://raw.githubusercontent.com/M1xysan/M1xysan/refs/heads/main/ok3no6.gif" width="20">
+<img src="https://raw.githubusercontent.com/M1xysan/M1xysan/main/5vedav.gif?raw=true" width="20">
+</span>
+
 - 💭 Pronouns: they / she / he (change sometimes — go with what feels right 💜)  
 - 🧠 Neurodivergent: ADHD + Dyslexic + Creative chaos in one brain  
 - 🎨 Art style: surrealist + illustrative + emotional  
