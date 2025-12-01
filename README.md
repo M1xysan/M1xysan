@@ -64,7 +64,7 @@ check my pronouns cc
 </p>
 
 ### 🪷 Trusted & Amazing People
-@lxckystxrs (Ash) | @iidaten (Tenya) | @givetomurasomechapstick (Moon)  
+@lxckystxrs (Ash) | @fillyfishcake | @givetomurasomechapstick (Moon)  
 💜 thank you for being part of my safe space 💜  
 
 <p align="center">
