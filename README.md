@@ -9,7 +9,7 @@
 
 ### 🪞 About Me
 Heya!! ^^ I'm ***Dunes Mixy*** — or ***Zerune Korvine*** if you’ve met my galactic side 💫  
-I’m 19 years old (turning 19 in December!) and a creative soul who loves world-building, design, and expressing identity through every art form possible.  
+I’m 19 years old (turning 20 in December 21!) and a creative soul who loves world-building, design, and expressing identity through every art form possible.  
 Mostly curious about *learning new things, building AUs, and creating stories that feel alive.*  
 
 <p align="center">
