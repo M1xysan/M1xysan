@@ -4,3 +4,4 @@ I'm having depressive episodes and I've noticing somethings wrong with me even t
 My Discord is linked you can message me but don't expect me to respond quickly (other social media links in the linktr.ee)***
 
 anyways honorable mentions: @lxckystxrs @givetomurasomechapstick @fillyfishcake 
+thank you guys for being there for me at my worst times see yall next time I hope...
