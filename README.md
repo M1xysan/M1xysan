@@ -10,7 +10,7 @@ ___
 
 >***@lxckystxrs @givetomurasomechapstick @fillyfishcake***
 
->***I forgot others but theres a lot of people that sported me and didn't left me out im sorry i have memory of a gold fish when it comes to names***
+>***I forgot others but theres a lot of people that supported me and didn't left me out im sorry i have memory of a gold fish when it comes to names***
 
 > ***thank you guys for being there for me at my worst times.***
 ___
