@@ -2,7 +2,7 @@
 
 ![Visitor Badge](https://visitor-badge.laobi.icu/badge?page_id=M1xysan.M1xysan.M1xysan.)
 ___
-> **hello guys! I'm thinking to start my own archive where I put the sources/links I think its worth looking and they might be about anything!**
+> idk if you care really check my discord
 ___
 > ***I'll be playing Pony town less (even if ı do ı'll be afk or off-tab)
 because I have been stressed enough that my mental health is decreasing.
