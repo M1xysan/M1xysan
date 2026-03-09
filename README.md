@@ -12,7 +12,7 @@ ___
 >***@lxckystxrs @Paradise-ofSloth-andSilence @notgreenzilla4real***
 
 >***I forgot others but theres a lot of people that supported me and didn't left me out im sorry i have memory of a gold fish when it comes to names***
->***Please find me in pony town (if we are ın a same party or friends (if ı let you near me a lot in game)) let me know...***
+>***Please find me in pony town (if we are ın the same party or friends (if ı let you near me a lot in game)) let me know...***
 
 > ***thank you guys for being there for me at my worst times***
 ___
