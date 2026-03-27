@@ -2,12 +2,7 @@
 
 ![Visitor Badge](https://visitor-badge.laobi.icu/badge?page_id=M1xysan.M1xysan.M1xysan.)
 ___
-> idk if you care really check my discord
-___
-> ***I'll be playing Pony town less (even if ı do ı'll be afk or off-tab)
-My Discord is linked you can message me but don't expect me to respond quickly (other social media links in the linktr.ee)***
-___
-> ***anyways honorable mentions:***
+***honorable mentions:***
 
 >***@lxckystxrs @Paradise-ofSloth-andSilence @notgreenzilla4real***
 
