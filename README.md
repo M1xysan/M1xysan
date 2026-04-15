@@ -3,8 +3,8 @@
 ![Visitor Badge](https://visitor-badge.laobi.icu/badge?page_id=M1xysan.M1xysan.M1xysan.)
 
 ---
-| currently: experiencing phantom sensation(s) |
+| currently: Sick / Depression episode |
 ---
-| mood: Agitated / sad | 
+| mood: scared / hopeless / basically all of the symptoms | 
 ---
 ---
