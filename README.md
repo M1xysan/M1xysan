@@ -3,7 +3,7 @@
 ![Visitor Badge](https://visitor-badge.laobi.icu/badge?page_id=M1xysan.M1xysan.M1xysan.)
 
 ---
-| currently: healing |
+| currently: physically fine, mentally still healing a bit|
 ---
 | mood: happy / normal | 
 ---
