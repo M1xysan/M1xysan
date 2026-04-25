@@ -7,6 +7,8 @@
 <p align="center"><b>💜 Dunes Mixy 💜</b></p>
 
 ---
+I don't Really have DNI I just block when I get uncomfortable and if you cross the line of basic DNI
+---
 
 ### 🪞 About Me
 Heya!! ^^ I'm ***Dunes Mixy*** 
