@@ -42,6 +42,7 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 ---
  🐾
 ---
+![@lxckystxrs](https://github.com/lxckystxrs)
 
 💜 thank you for being part of my safe space 
 
