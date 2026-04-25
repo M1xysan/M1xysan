@@ -42,7 +42,7 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 ---
  🐾
 ---
-[@lxckystxrs](https://github.com/lxckystxrs)
+[Ash](https://github.com/lxckystxrs) , [K☆Y](https://github.com/KNYL0VER)
 
 💜 thank you for being part of my safe space 
 
