@@ -2,9 +2,56 @@
 
 ![Visitor Badge](https://visitor-badge.laobi.icu/badge?page_id=M1xysan.M1xysan.M1xysan.)
 
+# Dunes-Mixy-s-introdiction
+<h2 align="center">🌙✨ Welcome to My Space ✨🌙</h2>
+<p align="center"><b>💜 Dunes Mixy 💜</b></p>
+
 ---
-| currently: physically fine, mentally still healing a bit|
+
+### 🪞 About Me
+Heya!! ^^ I'm ***Dunes Mixy*** 
+I’m 19 years old (turning 20 in December!) and a creative soul who loves world-building, design, and expressing identity through every art form possible.  
+Mostly curious about *learning new things, building AUs, and creating stories that feel alive.*  
+
 ---
-| mood: happy / normal | 
+
+### 🐾 Quick Facts
+- 🌈 fluid identity 
+- 💭 Pronouns: they/them, Xe/Xem 
+- 🧠 Neurodivergent: ADHD + Dyslexic + Creative chaos in one brain  
+- 🎨 Art style: surrealist + illustrative   
+- 🪩 Current obsession: AUs, lores, and galactic aesthetics and learning
+- 🕊️ Motto: “Everything all above.”  
+
 ---
+
+### 🌸 Interests
+✨ World & character design  
+💻 Building universes in Minecraft / Gacha / art apps  
+🎮 Storytelling, writing, and game concepts  
+🎭 Drag queens, LGBTQ+ culture, self-expression, and aesthetics  
+🎵 Music inspires every world I make  
+
 ---
+
+### 💫 Aesthetic Vibes
+> 🌌 Galactic surrealism  
+> 💜 Purple core energy  
+---
+ 🐾
+---
+
+💜 thank you for being part of my safe space 
+
+---
+
+### 💎 Favorite Colors
+💜 Purple — and whatever fits with purple.  
+✨ If it glows, it goes.  
+
+---
+
+### 📎 Links
+---
+
+<p align="center"><i>“Made of stars, stories, and a little bit of chaos.”</i> 🌠</p>
