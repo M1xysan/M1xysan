@@ -42,7 +42,8 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 ---
  🐾
 ---
-💜 thank you for being part of my safe space
+💜 thank you for being part of my '25-'26 
+(might keep adding)
 
 [Ash](https://github.com/lxckystxrs) , [K☆Y](https://github.com/KNYL0VER)
 
