@@ -42,19 +42,16 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 ---
  🐾
 ---
+💜 thank you for being part of my safe space
+
 [Ash](https://github.com/lxckystxrs) , [K☆Y](https://github.com/KNYL0VER)
 
-💜 thank you for being part of my safe space 
+ 
 
 ---
 
 ### 💎 Favorite Colors
 💜 Purple — and whatever fits with purple.  
 ✨ If it glows, it goes.  
-
----
-
-### 📎 Links
----
 
 <p align="center"><i>“Made of stars, stories, and a little bit of chaos.”</i> 🌠</p>
