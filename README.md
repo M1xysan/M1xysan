@@ -20,7 +20,7 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 ### 🐾 Quick Facts
 - 🌈 fluid identity 
 - 💭 Pronouns: they/them, Xe/Xem 
-- 🧠 Neurodivergent: ADHD + Dyslexic + Creative chaos in one brain  
+- 🧠 Creative chaos in one brain  
 - 🎨 Art style: surrealist + illustrative   
 - 🪩 Current obsession: AUs, lores, and galactic aesthetics and learning
 - 🕊️ Motto: “Everything all above.”  
