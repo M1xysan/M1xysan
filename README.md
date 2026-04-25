@@ -43,7 +43,7 @@ Mostly curious about *learning new things, building AUs, and creating stories th
  🐾
 ---
 💜 thank you for being part of my '25-'26 
-(might keep adding)
+(might add more | I cant really remember names if you know me please INT)
 
 [Ash](https://github.com/lxckystxrs) , [K☆Y](https://github.com/KNYL0VER)
 
