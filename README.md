@@ -4,7 +4,7 @@
 
 <h2 align="center"># Dunes-Mixy-s-introdiction</h2>
 <h2 align="center">🌙✨ Welcome to My Space ✨🌙</h2>
-<p align="center"><b>💜 Dunes Mixy 💜</b></p>
+<h2 align="center">💜 Dunes Mixy 💜</h2>
 
 ---
 I don't Really have DNI I just block when I get uncomfortable and if you cross the line of basic DNI
