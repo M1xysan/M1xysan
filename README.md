@@ -42,13 +42,10 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 ---
  🐾
 ---
-💜 thank you for being part of my '25-'26 
+💜 amazing people! 
 (might add more | I cant really remember names if you know me please INT)
 
-[Ash](https://github.com/lxckystxrs) , [K☆Y](https://github.com/KNYL0VER)
-
- 
-
+[Ash](https://github.com/lxckystxrs) , [K☆Y](https://github.com/KNYL0VER) , [Moon](https://github.com/givetomurasomechapstick) , [Fillian/purple](https://github.com/purplepilbert)
 ---
 
 ### 💎 Favorite Colors
