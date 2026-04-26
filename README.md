@@ -2,7 +2,7 @@
 
 ![Visitor Badge](https://visitor-badge.laobi.icu/badge?page_id=M1xysan.M1xysan.M1xysan.)
 
-# Dunes-Mixy-s-introdiction
+<h2 align="center"># Dunes-Mixy-s-introdiction</h2>
 <h2 align="center">🌙✨ Welcome to My Space ✨🌙</h2>
 <p align="center"><b>💜 Dunes Mixy 💜</b></p>
 
@@ -20,7 +20,7 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 [LinkTree](https://linktr.ee/MixySan)
 ---
 
-### 🐾 Quick Facts
+# 🐾 Quick Facts
 - 🌈 fluid identity 
 - 💭 Pronouns: they/them, Xe/Xem 
 - 🧠 Creative chaos in one brain  
@@ -30,13 +30,15 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 
 ---
 
-### 🌸 Interests
+# 🌸 Interests
 ✨ World & character design  
 💻 Building universes in Minecraft / Gacha / art apps  
 🎮 Storytelling, writing, and game concepts  
 🎭 Drag queens, LGBTQ+ culture, self-expression, and aesthetics  
 🎵 Music inspires every world I make  
+
 ---
+
 💜 amazing people! 
 (might add more | I cant really remember names if you know me please INT)
 
