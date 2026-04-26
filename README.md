@@ -15,6 +15,9 @@ Heya!! ^^ I'm ***Dunes Mixy***
 I’m 19 years old (turning 20 in December!) and a creative soul who loves world-building, design, and expressing identity through every art form possible.  
 Mostly curious about *learning new things, building AUs, and creating stories that feel alive.*  
 
+--- Links! 
+[Rentry](https://rentry.co/dunesmixyspage)
+[LinkTree](https://linktr.ee/MixySan)
 ---
 
 ### 🐾 Quick Facts
