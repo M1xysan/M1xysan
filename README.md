@@ -33,23 +33,11 @@ Mostly curious about *learning new things, building AUs, and creating stories th
 🎮 Storytelling, writing, and game concepts  
 🎭 Drag queens, LGBTQ+ culture, self-expression, and aesthetics  
 🎵 Music inspires every world I make  
-
----
-
-### 💫 Aesthetic Vibes
-> 🌌 Galactic surrealism  
-> 💜 Purple core energy  
----
- 🐾
 ---
 💜 amazing people! 
 (might add more | I cant really remember names if you know me please INT)
 
 [Ash](https://github.com/lxckystxrs) , [K☆Y](https://github.com/KNYL0VER) , [Moon](https://github.com/givetomurasomechapstick) , [Fillian/purple](https://github.com/purplepilbert)
----
 
-### 💎 Favorite Colors
-💜 Purple — and whatever fits with purple.  
-✨ If it glows, it goes.  
-
-<p align="center"><i>“Made of stars, stories, and a little bit of chaos.”</i> 🌠</p>
+---  
+# <p align="center"><i>“Made of stars, stories, and a little bit of chaos.”</i> 🌠</p>
